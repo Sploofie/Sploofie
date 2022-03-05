@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Sploofie
+- High school idiot obsessed with Discord Bots
+- Bored so I'm helping blobfysh with Biolast while he ditches us to work on LC
+- Balls
